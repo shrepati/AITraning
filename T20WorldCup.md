@@ -108,3 +108,21 @@ The ICC announced the groups and their fixtures on 5 January 2024, with the grou
 | **Player of the series**  | Jasprit Bumrah (India)                    |
 | **Most runs**             | Rahmanullah Gurbaz (Afghanistan) – 281    |
 | **Most wickets**          | - Fazalhaq Farooqi (Afghanistan) – 17  <br> - Arshdeep Singh (India) – 17 |
+
+
+Each team was allowed to have a squad of 15 players with the provisional squad required to be submitted to the ICC by **1 May 2024**. The teams were allowed to make changes to their squads till **25 May**.
+
+On **29 April 2024**, **New Zealand** was the first team to announce its squad for the tournament. The following day, **Afghanistan**, **England**, **India**, **Oman**, and **South Africa** announced their squads.
+
+This was followed by:
+* **Australia** and **Nepal** on **1 May**
+* **Canada** on **2 May**
+* Co-hosts **West Indies** and the **United States** on **3 May**
+* **Scotland** and **Uganda** on **6 May**
+* **Ireland** and **Papua New Guinea** on **7 May**
+* **Sri Lanka** on **9 May**
+* **Namibia** on **10 May**
+* **Netherlands** on **13 May**
+* **Bangladesh** on **14 May**
+
+**Pakistan** became the final team to announce their squad for the tournament on **24 May**.
